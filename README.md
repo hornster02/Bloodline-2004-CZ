@@ -1,6 +1,6 @@
 MYABANDONWARE - PL verze (2024-04)
 <br/>
-Včetně CZ dabingu. Velikost 151MB https://drive.google.com/drive/folders/1fw6I39O6HIbjmwJgdASEd43_0EJD1z3N
+Velikost 151MB https://drive.google.com/drive/folders/1fw6I39O6HIbjmwJgdASEd43_0EJD1z3N
 
 Postup
 <br/>
